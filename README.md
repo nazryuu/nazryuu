@@ -8,7 +8,7 @@ Heyya there! Why are you here... Are you secretly stalking me...? Just kidding! 
 
 -: ✧ :-゜・．
 
-• Usually I sit alone or with friends, if I'm with someone, I prefer you not to approach me please. 
+• Usually I sit alone or with friends, if I'm with someone, I prefer you not to approach me please.
 • I don't mind any C+H~
 • I'm a bit shy, so sometimes I get too quiet-
 • Most importantly, I'm dumb at socializing. It's a warning if you hate any awkward moment! 
