@@ -2,7 +2,7 @@ Heyya there! Why are you here... Are you secretly stalking me...? Just kidding! 
 
 ☆⁠ Now that you're here, let me introduce myself! You can call me Kei, Naz or Ryuu, but feel free to call me anything that you're more comfortable with~
 
-☆⁠ I speak malay and english, though I can understand Indonesian, but there's some words that I'm not familiar with sadly (´。＿。｀)
+☆⁠ I speak malay and english, though I can understand Indonesian, there's some words that I'm not familiar with sadly (´。＿。｀)
 (Still learning arabic btw!) 
 
 -: ✧ :-゜・．
